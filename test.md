@@ -4,7 +4,7 @@
 
 ## 逸一时，误一世！
 #### ———田所浩二
-![Image](C:\Users\lenovo\Desktop\test1145-1.jpg)
+![Image](https://github.com/salt114514/picture-git)
 
 # 禁止狙击！！！！！
 ### ——from salt1145

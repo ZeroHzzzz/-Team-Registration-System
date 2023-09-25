@@ -4,7 +4,7 @@
 
 ## 逸一时，误一世！
 #### ———田所浩二
-![Alt text](C:\Users\lenovo\Desktop\test1145-1.jpg)
+![Image](C:\Users\lenovo\Desktop\test1145-1.jpg)
 
 # 禁止狙击！！！！！
 ### ——from salt1145

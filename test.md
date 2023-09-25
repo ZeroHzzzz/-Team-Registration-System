@@ -4,7 +4,7 @@
 
 ## 逸一时，误一世！
 #### ———田所浩二
-![Image](https://github.com/salt114514/picture-git/test1145.jpg)
+![Alt text](test1145.jpg)
 
 # 禁止狙击！！！！！
 ### ——from salt1145
